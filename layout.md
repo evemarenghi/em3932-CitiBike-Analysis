@@ -9,6 +9,8 @@ s8ev004d0c.html
 gv6a25p6jfo.html
 ieu6ahdk5jo.md
 0jh9g5m50u8.html
+qhukimju9dg.md
+3ujf2mp0tbg.html
 aim5sjsr49g.html
 8s0esfgle2g.html
 598ptbr7sgg.html
