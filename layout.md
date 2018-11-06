@@ -6,6 +6,8 @@ figures/hw8_citibike1
 3a5g0g8ol0g.html
 figures/hw8_citibike2
 s8ev004d0c.html
+ckk4rek6e.md
+gv6a25p6jfo.html
 aim5sjsr49g.html
 8s0esfgle2g.html
 598ptbr7sgg.html
