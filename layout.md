@@ -2,6 +2,8 @@ untitled.html
 jgfbs8k4ae.html
 o3c60pvjr38.html
 1tbc0krrtno.html
+figures/hw8_citibike1
+3a5g0g8ol0g.html
 1ffcm7hksf.html
 aim5sjsr49g.html
 8s0esfgle2g.html
