@@ -3,6 +3,7 @@ jgfbs8k4ae.html
 o3c60pvjr38.html
 1tbc0krrtno.html
 figures/Screen Shot 2018-11-06 at 4-01-35 PM
+8fgkfgl8irg.html
 3a5g0g8ol0g.html
 figures/Screen Shot 2018-11-06 at 4-04-35 PM
 s8ev004d0c.html
