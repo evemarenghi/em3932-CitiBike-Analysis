@@ -2,9 +2,9 @@ untitled.html
 jgfbs8k4ae.html
 o3c60pvjr38.html
 1tbc0krrtno.html
-figures/hw8_citibike1
+figures/Screen Shot 2018-11-06 at 4-01-35 PM
 3a5g0g8ol0g.html
-figures/hw8_citibike2
+figures/Screen Shot 2018-11-06 at 4-04-35 PM
 s8ev004d0c.html
 ckk4rek6e.md
 2fl8ghmco5.md
