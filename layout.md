@@ -14,6 +14,8 @@ jq0v460k35.md
 gga1d4n989g.html
 aim5sjsr49g.html
 8s0esfgle2g.html
+2tjhfkalt1g.tex
+2hpu0mpipg8.html
 598ptbr7sgg.html
 tosacopeqd8.html
 cdtjjf59ph.html
